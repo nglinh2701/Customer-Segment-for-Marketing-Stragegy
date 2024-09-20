@@ -1,1 +1,1 @@
-# Customer-Segment-for-Marketing-Stragegy
+# Customer-Segmention-for-Marketing-Stragegy
